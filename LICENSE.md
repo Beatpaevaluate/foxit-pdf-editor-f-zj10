@@ -1,4 +1,4 @@
-# 
+# exclusive Foxit PDF Editor for PC | Foxit PDF Editor for Windows Integration | export-to-Word + batch-processing offers the most advanced Foxit PDF Editor for PC | Foxit PDF
 
 
 
